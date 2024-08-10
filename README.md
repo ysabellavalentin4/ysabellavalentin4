@@ -1,4 +1,4 @@
-## bemvindos ao meu perfil 💜
+## bem-vindos ao meu perfil 💜
 
 Meu nome é Ysabella Valentina
 
